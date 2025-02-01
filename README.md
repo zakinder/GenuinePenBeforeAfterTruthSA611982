@@ -6,4 +6,3 @@ GenuinePenBeforeAfterTruthSA611982
 
 
 
-گولی(bullet) meaning in urdu sweet and some say flowers(in farsi)
